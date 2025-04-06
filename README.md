@@ -3,9 +3,9 @@
 ## Gamdom Free Spins Codes 2025
 | Platform  | Promo Code | Welcome bonus |
 | ------------- | ------------- | ------------- |
-| Exclusive Welcome Bonus  | HELLA | receive 15% rakeback for the first 7 days |
-| Free Spins | HELLA | get 100 free spins |
-| Rakeback Bonus | HELLA | get up to 60% total rakeback |
+| Exclusive Welcome Bonus  | GAMBLE100 | receive 15% rakeback for the first 7 days |
+| Free Spins | GAMBLE100 | get 100 free spins |
+| Rakeback Bonus | GAMBLE100 | get up to 60% total rakeback |
 
 Let’s break it down with a quick example. Imagine you’re a new user looking to try out [Gamdom](https://gamdom.com/r/gamble100) in 2025. You register, enter the promo code **GAMBLE100**, and claim your exclusive 15% rakeback instantly. Then, after depositing $50, you use the code **SWEETGAMBLE100** and receive **25 free spins worth $0.20 each** on _Sweet Bonanza 1000_. That’s $5 in free spins alone just for signing up and depositing — and that’s not even counting the rakeback and other bonuses. We tested this entire process ourselves, and the results were smooth, fast, and rewarding. Now let’s get into the details.
 
